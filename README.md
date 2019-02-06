@@ -1,5 +1,6 @@
 # Matthew-resume
 resume de matthew
+
 Howdy, HomeAway!
 
 I saw the Design Intern opportunity at HomeAway, and it really excited me. I am particularly interested to work for a company and a team that is all about communication, collaboration, and the creation of innovative products that we can be proud of and fit the customer's needs (free snacks sound  like a great perk as well). When I came across your job posting, I was immediately struck by the amazing opportunities it presented, such as working along senior designers and being able to learn from experts in the field.
